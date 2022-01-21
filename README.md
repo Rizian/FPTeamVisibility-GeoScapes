@@ -6,6 +6,8 @@
 
 **Team:** Visibility
 
+**Video link:** https://drive.google.com/file/d/1MmUl6pErnCx4zi_WMMOE9SH_BhEqg8Mt/view?usp=sharing
+
 **Members:**
   1. Ian Wirawan (2502009596)
   2. Carmen Cleosa (2502009601)
